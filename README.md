@@ -1,2 +1,0 @@
-# ganeshaperkasa
-ganesha perkasa mandiri
